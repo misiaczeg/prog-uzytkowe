@@ -1,4 +1,9 @@
 # prog-uzytkowe
 
 
- Pozndrawiam mateusz xd
+ Pozdrawiam Mateusz xd
+ 
+Siema tu Andrzej xd
+
+
+
